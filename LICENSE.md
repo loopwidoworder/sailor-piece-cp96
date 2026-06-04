@@ -1,4 +1,4 @@
-#  
+#  automatic bedwars Script is the best bedwars Script, featuring auto-farm and aimbot. Safe and powerful for all your needs.
 
 
 
